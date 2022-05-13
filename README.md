@@ -1,1 +1,0 @@
-# Extended-Wolf-Goat-Cabbage-Problem
